@@ -1,2 +1,4 @@
-- 👋 Hi, I’m Evliya  DEMİRAY
-- 👀 I’m currently interest HTML, CSS, JAVASCRİPT.
+- 👋 Hi, This is Evliya  DEMİRAY
+- 👀 I’m currently interest in HTML, CSS, ,SCSS, JAVASCRİPT, REACT.
+- ⚡ I am here to create unique and inspiring responsive websites.
+- 📫 You can reach with evliya.demiray-45@hotmail.com
