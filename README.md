@@ -8,4 +8,4 @@ Adept at communicating effectively with cross-functional teams to ensure a smoot
 
 Fluent in English and willing to learn and adapt to other languages as needed.
 
-- 📫 You can reach with evliya.demiray-45@hotmail.com
+📫 You can reach with evliya.demiray-45@hotmail.com
